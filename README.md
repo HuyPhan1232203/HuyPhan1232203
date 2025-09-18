@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **huy.work2203@gmail.com**
 
-- 📄 Know about my experiences [https://huy-resume.tiiny.site/](https://huyresume.tiiny.site/)
+- 📄 Know about my experiences [https://huy-resume.tiiny.site/](https://smallpdf.com/file#s=694ceb9b-f057-44d8-a87d-881ba8e39c6f)
 
 - ⚡ Fun fact **I have a good sense of humor :)))**
 
